@@ -20,13 +20,11 @@
 ⬫ I HEART LUCY MAUD MONTGOMERY! (Both author and the bsd character.)
 
 ⬫ Most recent (finished) book: *The Portrait of a Lady* by Henry James.
-*Kinda loved it, really interesting! Really LONG though. ( ´△｀)## Hi there, I'm Nini!
-
+*Kinda loved it, really interesting! Really LONG though. ( ´△｀)
 ⊹   ︶︶   ୨୧   ︶︶   ⊹
 
 ![1](https://github.com/user-attachments/assets/9bdf6bc4-566c-43e8-8ce1-f1b02ba661d6)
 
 *"Jein.. Ich bin bescheuert."*
-attachments/assets/9bdf6bc4-566c-43e8-8ce1-f1b02ba661d6)
 
-*"Jein.. Ich bin bescheuert."*
+●  ●  ●
